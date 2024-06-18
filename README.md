@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @stauseepokal
+- 👀 I’m interested in creating the stauseepokal.de websie
+- 🌱 I’m currently learning for school
